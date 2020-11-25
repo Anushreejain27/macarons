@@ -1,0 +1,1 @@
+This easy French macaron recipe makes a batch of the most dainty, delicate, and delicious cookies that will float right into your mouth and disappear. I've packed all my tips into this post to help you out!
